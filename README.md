@@ -1,5 +1,5 @@
 # [มังกรทอง คาสิโนออนไลน์](#แล้วแคปภาพหลักฐานทั้งหมดส่งมาให้แอดมินตรวจสอบได้เลยที่-ลิ้งค์นี้httpslineep5yatqy)
-![สมัครสมาชิก](https://raw.githubusercontent.com/mgtbetting/event_free/7d6ce316b5c39a5a0c94b78e5b5e2a6f701a96bb/register.gif)  
+
 <br>
 # ✅    แจกฟรี 50    ✅   
 # ทำยอดถึง 800 ถอนได้ทันที  
